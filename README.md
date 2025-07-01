@@ -1,3 +1,3 @@
 # Cuma Penghijauan
 
-## Update [ 1 - 7 - 2025 ]
+## Update [ 2 - 7 - 2025 ]
